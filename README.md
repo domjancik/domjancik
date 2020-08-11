@@ -1,5 +1,8 @@
-### Hi there 👋
+### 🥼 Hi @ domj . net
 
+Dominik >Jančík 🧪
+
+🔧 ***creative developer***
 <!--
 **domjancik/domjancik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
